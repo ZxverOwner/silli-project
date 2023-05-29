@@ -1,5 +1,5 @@
 # silli-project
 this is bad project :O
 
-3 GUD DOWNLOD
+# GUD DOWNLOD
 poop
